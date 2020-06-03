@@ -1,1 +1,1 @@
-https://www.hos.am
+https://www.hos.am/
